@@ -95,7 +95,7 @@ Contact following emails for more information.
 
 WeChat: Haroctech
 
-> We have several marketing channels, please mention the channel you get from, there would be extra 3% or $10 (whichever higher, limited to $500) for your discount.
+> We have several marketing channels, please mention the channel you get from, there would be extra 3% or $10 (whichever higher, limited to $500) for your discount.  
 > 我们拥有多个宣传渠道，请备注说明你的信息来源，您将获得额外优惠 3% 或者 $10 （最高奖励 $500）
 
 ![image](https://github.com/user-attachments/assets/2a277c49-7fa5-4fd0-a5ae-22c31d8fc704)
